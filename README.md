@@ -2,7 +2,7 @@ i havent been on ponytown in 4ever...havent used github in 4ever. this wont be f
 
 @  jester . death . narcissus   𓈊    avoid pronouns,  he / it if you have to
 
-taken 2x  ( matt , ditzy )    𓈊    15 years old    𓈊    bday is june 22
+taken 3x  ( matt , ditzy , tipsy )    𓈊    15 years old    𓈊    bday is june 22
 
 some things we enjoy right now    𝅄𝅄   no, im not a human.  QSMP.  identity v.  dandys world.  phighting.  jesters.  birds.  flowers
 
