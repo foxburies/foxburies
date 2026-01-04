@@ -9,9 +9,10 @@ fox ノ burial ノ narcissus )  it₊ he ok
 
 ︶  interests )  CAPS = major interest )  *italics* = minor interest
 
-STARTERS (MOVIEUNLEASHERS),  DANDYS WORLD  .  no i'm not a human,  house md,  minesweeper,  mouthwashing,  phighting!,  qsmp,  regretevator,  trauma center: under the knife 2  .  *identity v*,  *yttd*,  *studio investigrave*
+STARTERS (MOVIEUNLEASHERS),  DANDYS WORLD  .  no i'm not a human,  house md,  forsaken,  minesweeper,  mouthwashing,  phighting!,  qsmp,  regretevator,  trauma center: under the knife 2  .  *identity v*,  *yttd*,  *studio investigrave*
 
 i do not support any problematic people that may have created or contributed to said interests + nothings in any order
+*i don't play forsaken, i just like the characters + lore*
 
 ***
 
