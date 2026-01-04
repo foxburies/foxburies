@@ -19,7 +19,7 @@ i do not support (play games, buy from, etc) any problematic people that may hav
 
 i am mentally ill . i may be barely active for days on end, and i may be unstable
 
-i am trying really hard to make friends . please say hi if u want 2
+i am REALLY trying 2 make friends, but im really awkward and dont know how to start a convo . please please please hit me up if u want 2 talk. STARTERS FANS PLEASE HIT ME UP.
 
 ***
 
