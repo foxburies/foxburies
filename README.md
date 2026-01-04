@@ -9,7 +9,7 @@ fox ノ burial ノ narcissus )  it₊ he ok
 
 ︶  interests )  CAPS = major interest )  *italics* = minor interest
 
-STARTERS (MOVIEUNLEASHERS),  DANDYS WORLD,  FLOWERS  .  searching for a world that doesn't exist,  collinlock16,  no i'm not a human,  house md,  forsaken,  minesweeper,  bad things,  mouthwashing,  phighting!,  qsmp,  regretevator,  trauma center: under the knife 2  .  *identity v*,  *yttd*,  *studio investigrave*
+STARTERS (MOVIEUNLEASHERS),  TEAM FORTRESS 2,  DANDYS WORLD,  FLOWERS  .  searching for a world that doesn't exist,  collinlock16,  no i'm not a human,  house md,  forsaken,  minesweeper,  bad things,  mouthwashing,  phighting!,  qsmp,  regretevator,  trauma center: under the knife 2  .  *identity v*,  *yttd*,  *studio investigrave*
 
 i do not support (play games, buy from, etc) any problematic people that may have created or contributed to said interests, i just might like the lore or characters / played before stuff came out about them. my list is not in order
 
