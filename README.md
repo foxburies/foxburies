@@ -1,6 +1,3 @@
-THE PREVIEW LIED TO ME IM FIXING THIS IM SO SORRY
-
-
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=foxburies&label= +hi+guys+⌒☆+ &color=84E341"/>
     </h3>
