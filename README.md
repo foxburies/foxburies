@@ -45,9 +45,9 @@ ${\textsf{\color{#50B8C7}"　 slow  lane,  propane,  empties  for  cas
 
 </h5>
 <h5 align="center">
-${\textsf{\color{#84E341}DNI  t.r.a.s.h (transphobes, racists, ableists, sexists, homophobes),}}$
-${\textsf{\color{#84E341}people under 13,  and if you have beef with me / my friends}}$
-${\textsf{\color{#84E341}otherwise i do NOT care, as long as you aren't hurting yourself or others}}$
+${\textsf{\color{#84E341}DNI  t.r.a.s.h,  people under 13,  tcooal fans}}$
+${\textsf{\color{#84E341}if you have beef with me  and / or  my friends}}$
+${\textsf{\color{#84E341}++ as long as you aren't hurting others,  that's it}}$
 </p>
 
 <p align="center">
@@ -56,15 +56,17 @@ ${\textsf{\color{#50B8C7}"　 rear- view  mirror  thrown  away .　 "}}$
 </h5>
 <h5 align="center">
 ${\textsf{\color{#84E341}INTERESTS  as of right now i' m HEAVILY into starters .}}$
-${\textsf{\color{#84E341}other interests include  tf2,  avm/ava,  dandys world,  sfawtde,}}$
-${\textsf{\color{#84E341}collinlock16,  ninah,  house md,  forsaken,  minesweeper,  bad things,}}$
-${\textsf{\color{#84E341}mouthwashing,  phighting,  qsmp,  regretevator,  identity v,  yttd,}}$
-${\textsf{\color{#84E341}trauma center: under the knife 2,  flowers,  and studio investigrave games .}}$
+${\textsf{\color{#84E341}other interests include  tf2,  avm/ava,  dandys world,}}$
+${\textsf{\color{#84E341}sfawtde,  collinlock16,  ninah,  house md,  forsaken,}}$
+${\textsf{\color{#84E341}minesweeper,  bad things,  mouthwashing,  phighting,}}$
+${\textsf{\color{#84E341}qsmp,  regretevator,  identity v,  yttd,  flowers}}$
+${\textsf{\color{#84E341}trauma center: under the knife 2,  studio investigrave}}$
 </p>
 
 </h5>
 <h5 align="center">
-${\textsf{\color{#84E341}i love a lot of things and i love rambling about the things i love :o)}}$
+${\textsf{\color{#84E341}i don't support any problematic devs / creators that-}}$
+${\textsf{\color{#84E341}-may have contributed to my interests. i just like lore !}}$
 </p>
 
   
