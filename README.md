@@ -11,7 +11,7 @@ ${\textsf{\color{#50B8C7}"　 smile  wide,  scrub  side,  feet  on  
 </p>
    
 <p align="center">
-<img align="right" width="500" height="500" src="https://i.postimg.cc/Njstb8mQ/Untitled68-Restored5-20260105082031.png"/>
+<img align="right" width="500" height="490" src="https://i.postimg.cc/Njstb8mQ/Untitled68-Restored5-20260105082031.png"/>
 </p>
 
 
