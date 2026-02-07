@@ -59,7 +59,7 @@ ${\textsf{\color{#D8B6B2}INTERESTS  as of right now i' m HEAVILY into starters
 ${\textsf{\color{#D8B6B2}other interests include  tf2,  avm/ava,  dandys world,}}$
 ${\textsf{\color{#D8B6B2}sfawtde,  collinlock16,  ninah,  house md,  forsaken,}}$
 ${\textsf{\color{#D8B6B2}minesweeper,  bad things,  mouthwashing,  phighting,}}$
-${\textsf{\color{#D8B6B2}qsmp,  regretevator,  identity v,  yttd,  flowers}}$
+${\textsf{\color{#D8B6B2}qsmp,  dsmp,  regretevator,  idv,  yttd,  flowers}}$
 ${\textsf{\color{#D8B6B2}trauma center: under the knife 2,  studio investigrave}}$
 </p>
 
