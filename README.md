@@ -66,8 +66,8 @@ ${\textsf{\color{#D8B6B2}trauma center: under the knife 2,  studio investigrav
 
 </h5>
 <h5 align="center">
-${\textsf{\color{#D8B6B2}i don't support any problematic devs / creators that-}}$
-${\textsf{\color{#D8B6B2}-may have contributed to my interests .}}$
+${\textsf{\color{#D8B6B2}i don't support any bad creators,}}$
+${\textsf{\color{#D8B6B2}i will ALWAYS consume media critically !}}$
 </p>
 
   
